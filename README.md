@@ -1,2 +1,2 @@
 # HASHAN-MD
-Simple Whatsapp Bot Created By Hashiya Md Owner All Erro Fixed...
+Whatsapp bot Hashan Md owner Hashan sathsara
